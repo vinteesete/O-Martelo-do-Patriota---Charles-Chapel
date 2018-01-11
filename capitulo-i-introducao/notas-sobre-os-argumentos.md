@@ -26,5 +26,3 @@ As réplicas geralmente atacam um inimigo geral \("liberais são XYZ"\) em vez d
 
 Uma nota sobre a pronúncia: enquanto você não deve tentar empregar uma maneira de falar que não é natural, pois diminuirá sua credibilidade, você deve falar com emoção para ser digno de confiança também. As réplicas fazem uso de citações liberais e texto em negrito. Isso altera o significado do texto e é um importante guia para a entonação enquanto os fala em voz alta. O texto em negrito deve ser dito mais alto e ser seguido por uma breve pausa para a ênfase. As citações devem ser ditas com um tom sarcástico, ou com um tom muito diferente do que você normalmente usa, para mostrar ao público que você desaprova as palavras ditas, para fazer a palavra soar estranha e inverossímil.
 
-O que está sublinhado foi o que não consegui traduzir corretamente. De resto, só mudei algumas palavras e expressões.
-
