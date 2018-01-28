@@ -45,7 +45,7 @@
 - [ ] (Capítulo V – Cristianismo versus Paganismo)
 - [ ] (Capítulo V – Cristianismo versus Paganismo)
 - [ ] (Capítulo V – Cristianismo versus Paganismo)
-- [ ] (Capítulo V - Teorias da conspiração)
+- [x] (Capítulo V - Teorias da conspiração)
 - [ ] (Conclusão)
 - [ ] (Conclusão - Apêndice A)
 - [ ] (Conclusão - Apêndice B)
