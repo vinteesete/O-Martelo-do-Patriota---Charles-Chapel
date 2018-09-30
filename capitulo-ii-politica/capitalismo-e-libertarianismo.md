@@ -4,7 +4,7 @@ O livre mercado é uma boa maneira de permitir que as pessoas mais competentes e
 
 Às vezes, a eficiência econômica deve ser sacrificada para coisas mais importantes. Pagar um menor preço por sapatos não é tão importante quanto ter sapatos fabricados em nossa própria nação ao invés de no exterior. Ser competitivo com os mercados estrangeiros não é tão importante quanto manter a dignidade humana de nossos trabalhadores. Vender bilhetes de cinema é não é tão importante quanto promover valores sociais saudáveis. Essas distinções nunca serão feitas por homens de negócios, que com o tempo sempre sacrificarão tudo por lucros maiores. Assim, a elite financeira deve ser restringida por uma elite moral, que tem poder de veto sobre todas as suas empresas.
 
-**Nota do tradutor:** Cetos argumentos desta seção não fazem muito sentido se forem aplicados ao Brasil, visto que somos um país de terceiro mundo subordinado ao mercado estrangeiro. Contudo, alguns argumentos foram mudados para se adequar à realidade brasileira.
+**Nota do tradutor:** Certos argumentos desta seção não fazem muito sentido se forem aplicados ao Brasil, visto que somos um país de terceiro mundo subordinado ao mercado estrangeiro. Contudo, alguns argumentos foram mudados para se adequar à realidade brasileira.
 
 #### Argumentos
 
