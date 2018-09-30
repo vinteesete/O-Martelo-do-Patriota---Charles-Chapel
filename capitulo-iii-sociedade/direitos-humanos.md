@@ -52,7 +52,7 @@ Os direitos e as liberdades são privilégios que sempre devem ser equilibrados 
 
 ---
 
-**Argumento**: A eugenia é antiético.
+**Argumento**: A eugenia é antiética.
 
 **Refutação**: Você acha que é "antiético" trabalhar para futuras gerações mais saudáveis, mais inteligentes e mais bem-sucedidas? Você acha que é "antiético" poupar nossos filhos da dor de doenças, deficiências e deformidades? Seu senso de ética está apenas preocupado com a forma como as pessoas "se sentem" AGORA. Na verdade, eu me importo com as gerações futuras. É melhor fazer pequenos sacrifícios agora e evitar maiores problemas mais tarde.
 
