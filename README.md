@@ -8,7 +8,7 @@
 - [x] (Capítulo II - Nacionalismo étnico)
 - [x] (Capítulo II - Democracia)
 - [x] (Capítulo II - Liberdade)
-- [ ] (Capítulo II - Capitalismo e libertarianismo)
+- [x] (Capítulo II - Capitalismo e libertarianismo)
 - [x] (Capítulo II - Uso da violência)
 - [x] (Capítulo II - Ajudando o terceiro mundo)
 - [x] (Capítulo III - Relativismo moral)
