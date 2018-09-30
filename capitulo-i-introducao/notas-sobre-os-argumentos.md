@@ -14,7 +14,7 @@ Algumas das refutações incluem respostas prováveis do liberal. Claro, não po
 
 Alguns dos argumentos possuem várias réplicas diferentes. Eles podem não ser todos igualmente apropriados ou eficazes dependendo da colocação e do oponente. Escolha o que será mais efetivo de acordo com seu julgamento.
 
-As réplicas são dadas de forma genérica. Você deve personalizá-las para se adequarem ao seu estilo de fala e, claro, traduzi-las para o seu idioma se você estiver debatendo em uma língua diferente do inglês. Isso precisa ser feito **com antecedência, **não em cima da hora, porque isso pode fazer você hesitar ou procurar palavras quando não há equivalente cultural ou linguístico à forma padrão no livro.
+As réplicas são dadas de forma genérica. Você deve personalizá-las para se adequarem ao seu estilo de fala e, claro, traduzi-las para o seu idioma se você estiver debatendo em uma língua diferente do inglês. Isso precisa ser feito **com antecedência,** não em cima da hora, porque isso pode fazer você hesitar ou procurar palavras quando não há equivalente cultural ou linguístico à forma padrão no livro.
 
 Muitas das réplicas possuem várias partes. A forma mais comum é primeiro indicar nossa própria posição, e então atacar as ideias deles como sendo destrutivas ou fracas. Não deixe sua timidez prevalecer e omitir a segunda parte, pensando nisso "com mau gosto".
 
