@@ -29,7 +29,7 @@
 - [x] (Capítulo IV - Diversidade)
 - [x] (Capítulo IV - Judeus)
 - [x] (Capítulo IV - Genocídio branco)
-- [ ] (Capítulo IV - Orgulho branco)
+- [x] (Capítulo IV - Orgulho branco)
 
 ---------------------------------------------------
 
