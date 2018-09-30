@@ -30,7 +30,7 @@
   * [Questões históricas](capitulo-v-diferentes/questoes-historicas.md)
   * [Cristianismo contra paganismo](capitulo-v-diferentes/cristianismo-contra-paganismo.md)
   * [Teorias da conspiração](capitulo-v-diferentes/teorias-da-conspiracao.md)
-* [Conclusão](conclusao.md)
+* [Conclusão](conclusao/Conclusão)
   * [Apêndice A - Recompensando o oponente](conclusao/apendice-a-recompensando-o-oponente.md)
   * [Apêndice B - Desenvolvendo novos argumentos](conclusao/apendice-b-desenvolvendo-novos-argumentos.md)
   * [Apêndice C - Solução de problemas](conclusao/apendice-c-solucao-de-problemas.md)
