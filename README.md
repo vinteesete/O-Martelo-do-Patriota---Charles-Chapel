@@ -6,6 +6,8 @@
 - [x] (Capítulo I - Diretrizes gerais)
 - [x] (Capítulo I - Notas sobre os argumentos)
 
+---------------------------------------------------
+
 - [x] (Capítulo II - Nacionalismo étnico)
 - [x] (Capítulo II - Democracia)
 - [x] (Capítulo II - Liberdade)
@@ -13,11 +15,15 @@
 - [x] (Capítulo II - Uso da violência)
 - [x] (Capítulo II - Ajudando o terceiro mundo)
 
+----------------------------------------------------
+
 - [x] (Capítulo III - Relativismo moral)
 - [x] (Capítulo III - Feminismo/papéis naturais de gênero)
 - [x] (Capítulo III - Religião na sociedade)
 - [x] (Capítulo III - Homossexualismo)
 - [x] (Capítulo III - Direitos Humanos)
+
+---------------------------------------------------
 
 - [x] (Capítulo IV - Diferenças raciais)
 - [ ] (Capítulo IV - Diversidade)
@@ -25,10 +31,14 @@
 - [ ] (Capítulo IV - Genocídio branco)
 - [ ] (Capítulo IV - Orgulho branco)
 
+---------------------------------------------------
+
 - [ ] (Capítulo V - Ataques gerais)
 - [ ] (Capítulo V - Questões históricas)
 - [ ] (Capítulo V – Cristianismo versus Paganismo)
 - [ ] (Capítulo V - Teorias da conspiração
+
+---------------------------------------------------
 
 - [ ] (Conclusão)
 - [ ] (Conclusão - Apêndice A)
