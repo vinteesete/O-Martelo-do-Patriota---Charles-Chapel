@@ -70,4 +70,4 @@ E é por isso que o único sistema político viável é o nacionalismo étnico. 
 
 **Argumento**: Nós temo mais em comum com pessoas da nossa própria classe em outros países do que com os burgueses da nossa própria nação, então deveríamos nos unir com os proletariados internacionais.
 
-**Refutação**: \(Sarcasticamente\) Muito bem, Karl Marx estaria orgulhoso. Eu irei te apresentar um somaliano de classe média qualquer dia, que fala uma língua que você não entende, come larvas como parte de sua dieta, e tem sua filha mutilada nas genitais quando atinge a puberdade. Veremos o quanto vocês tem em comum.
+**Refutação**: (_Sarcasticamente_) Muito bem, Karl Marx estaria orgulhoso. Eu irei te apresentar um somaliano de classe média qualquer dia, que fala uma língua que você não entende, come larvas como parte de sua dieta, e tem sua filha mutilada nas genitais quando atinge a puberdade. Veremos o quanto vocês tem em comum.
