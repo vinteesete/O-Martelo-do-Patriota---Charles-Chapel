@@ -3,7 +3,7 @@ Os brancos fizeram muitas coisas boas na história: civilizações como a Gréci
 
 ### Argumentos
 
-**Argumento:** É burrice se sentir orgulhoso por coisas que você mesmo não fez.<br
+**Argumento:** É burrice se sentir orgulhoso por coisas que você mesmo não fez.<br>
 
 **Refutação:** É burrice se sentir orgulhoso quando seus filhos estão indo bem na escola? É burrice se sentir orgulhoso por seu pai ser um homem realizado? Não. Pessoas normais ficam felizes quando pessoas vão bem, somente sociopatas são indiferentes às conquistas dos outros.
 
@@ -39,13 +39,13 @@ Os brancos fizeram muitas coisas boas na história: civilizações como a Gréci
 
 <p align="center">~</p>
 
-**Argumento:** Você soa como um supremacista branco.<br
+**Argumento:** Você soa como um supremacista branco.<br>
 
 **Refutação:** Você está certo. Pessoas que animam seu time de futebol são supremacistas Corintianos (_substitua pelo time local_). E pessoas que se identificam com os humanos ao invés de chimpanzés são “supremacistas humanos”. O que você é então? Eu acho que você deve ser um (mulçumano/islâmico/negro/feminista/vítima) supremacista. Porque você pensa que eles não têm culpa e sempre vai ficar do lado deles.
 
 <p align="center">~</p>
 
-**Argumentação:** Todas essas inovações da raça branca não são nadas comparadas ao seu histórico de opressão.<br
+**Argumentação:** Todas essas inovações da raça branca não são nadas comparadas ao seu histórico de opressão.<br>
 
 **Refutação:** Oh, não! Nós temos de nos sentir mal por nosso histórico de opressão agora! Nós estamos oprimindo os africanos quando discutimos sobre mandar para eles barcos cheios de comida, água e remédios. Nós oprimimos as colônias introduzindo nelas as regras da lei, saneamento público e tecnologia moderna. Nós oprimimos os negros ao trazê-los para a América para viver com conforto e segurança enquanto o resto da África estava morrendo com a malária e canibalizando a si mesmos. Não sei por quê, mas não me sinto nem um pouco culpado. Todas essas pessoas “oprimidas” parecem melhor agora do que costumavam ser, por algum motivo. Esse tipo de opressão é muito estranho, não acha?
 
