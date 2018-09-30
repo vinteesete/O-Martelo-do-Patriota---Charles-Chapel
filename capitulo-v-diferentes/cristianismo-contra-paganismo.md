@@ -79,9 +79,8 @@ Não vou, portanto, dar qualquer argumento para atacar o Cristianismo e sua hist
 
 **Argumento:** O paganismo é a verdadeira religião europeia, ela é mais tradicional.
  
-**Refutação:** O paganismo é mais velho que o Cristianismo, obviamente, mas dizer que é mais tradicional implica que existem grandes contradições entre costumes e crenças dos pagãos e dos cristãos. Os cristãos e os pagãos têm a maioria dos mesmos feriados, acreditam em Deus e espíritos menores (anjos, demônios, santos, heróis e deuses menores), acreditam no Julgamento na vida após a morte e possuem na maioria das vezes as mesmas virtudes em estima: piedade, coragem, sacrifício, honra, temperança, indústria e assim por diante. Se você acha que os pagãos eram amantes da paz e adoradores de árvores da Nova Era ou darwinistas sociais _hardcore,_ você está errado.
+**Refutação:** O paganismo é mais velho que o Cristianismo, obviamente, mas dizer que é mais tradicional implica que existem grandes contradições entre costumes e crenças dos pagãos e dos cristãos. Os cristãos e os pagãos têm a maioria dos mesmos feriados, acreditam em Deus e espíritos menores (anjos, demônios, santos, heróis e deuses menores), acreditam no Julgamento na vida após a morte e possuem na maioria das vezes as mesmas virtudes em estima: piedade, coragem, sacrifício, honra, temperança, indústria e assim por diante. Se você acha que os pagãos eram amantes da paz e adoradores de árvores da Nova _new age_ ou darwinistas sociais _hardcore,_ você está errado.
  
-_Nota do tradutor:_ essa parte final é difícil de traduzir, sugiro edições.
 <p align="center">~</p>
 
 **Argumento:** Jesus nunca existiu. Não há provas de sua existência. Todos os documentos provaram ser falsificações.
