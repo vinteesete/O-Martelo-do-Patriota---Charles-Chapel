@@ -26,9 +26,9 @@
 ---------------------------------------------------
 
 - [x] (Capítulo IV - Diferenças raciais)
-- [ ] (Capítulo IV - Diversidade)
+- [x] (Capítulo IV - Diversidade)
 - [x] (Capítulo IV - Judeus)
-- [ ] (Capítulo IV - Genocídio branco)
+- [x] (Capítulo IV - Genocídio branco)
 - [ ] (Capítulo IV - Orgulho branco)
 
 ---------------------------------------------------
