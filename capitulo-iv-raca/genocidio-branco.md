@@ -59,7 +59,7 @@ Todas as populações da Terra estão aumentando, exceto pelos brancos que estã
 
 **Refutação:** Sim, e os nativos apenas sentaram e nos deixaram tirá-los do caminho? Não, caramba! Eles lutaram com uma bravura heroica para nos impedir. Nós perdemos **milhares** de vidas lutando contra eles por centenas de anos. Os nativos cometeram atrocidades, e nós algumas vezes recuamos – tudo para determinar o vencedor da luta pelo domínio do continente americano. Os índios tiveram vontade, tiveram energia, tiveram o instinto de sobrevivência – e nós também tivemos. No final, nossa vontade e ferocidade se mostraram maiores. Mas e **agora,** o que está acontecendo? Nós estamos apenas nos deixando desaparecer sem **sequer** nos prepararmos para lutar! O que **aconteceu** com nossa vontade de viver?<br>
 
-**_Nota do tradutor:_** Vale a pena ressaltar a introdução do artigo "Maquiadores do crime", do professor e escritor Olavo de Carvalho. Disponível em: http://www.olavodecarvalho.org/maquiadores-do-crime/
+**Nota do tradutor:** Vale a pena ressaltar a introdução do artigo "Maquiadores do crime", do professor e escritor Olavo de Carvalho. Disponível em: http://www.olavodecarvalho.org/maquiadores-do-crime/
 <p align="center">~</p>
 
 **Argumento:** Nós não podemos proibir os imigrantes de entrar, isso violaria os direitos humanos.<br>
