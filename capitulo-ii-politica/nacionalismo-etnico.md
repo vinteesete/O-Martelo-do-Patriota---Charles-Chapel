@@ -56,7 +56,7 @@ E é por isso que o único sistema político viável é o nacionalismo étnico. 
 
 **Argumento**: Nacionalismo é apenas uma ferramenta para controlar as pessoas.
 
-**Refutação**: Nacionalismo não é uma ferramenta ou ideologia – é uma **unidade biológica** de pessoas com o mesmo sangue que cooperam na luta pela sobrevivência. É apenas um nome conveniente para o mesmo instinto que a mãe tem de proteger seu filho, e o instinto que o homem tem de proteger sua família. É a fonte da coragem que os homens precisam para derrubar os tiranos e resistir aos invasores. É a emoção que conduz à nobres atos de caridade. Nenhuma trama pode controlar aqueles em cujo coração queima a chama do sangue e do solo.
+**Refutação**: Nacionalismo não é uma ferramenta ou ideologia – é uma **unidade biológica** de pessoas com o mesmo sangue que cooperam na luta pela sobrevivência. É apenas um nome conveniente para o mesmo instinto que a mãe tem de proteger seu filho, e o instinto que o homem tem de proteger sua família. É a fonte da coragem que os homens precisam para derrubar os tiranos e resistir aos invasores. É a emoção que conduz à nobres atos de caridade. Nenhuma ação superficial pode controlar aqueles em cujo coração queima a chama do sangue e do solo.
 <p align="center">~</p>
 
 **Argumento**: Nós temo mais em comum com pessoas da nossa própria classe em outros países do que com os burgueses da nossa própria nação, então deveríamos nos unir com os proletariados internacionais.
