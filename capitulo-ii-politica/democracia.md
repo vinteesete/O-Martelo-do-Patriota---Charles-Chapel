@@ -70,7 +70,7 @@ Além disso, em qualquer eleição com mais de alguns milhares de eleitores, as 
 
 **Argumento**: Mesmo que as pessoas não sejam iguais, elas ainda podem votar em quem lhes representa. Então, o governo servirá aos interesses dessas pessoas.
 
-**Refutação**: As pessoas simplesmente votarão no candidato que conta as mentiras mais apelativas e atraentes. Não há absolutamente nenhuma consequência para um político para promete a lua e não entrega nada. Por que os políticos atenderiam aos interesses das pessoas se eles podem obter lucros cada vez maiores colhendo subornos de lobistas?
+**Refutação**: As pessoas simplesmente votarão no candidato que conta as mentiras mais apelativas e atraentes. Não há absolutamente nenhuma consequência para um político que promete até a Lua e não entrega nada. Por que os políticos atenderiam aos interesses das pessoas se eles podem obter lucros cada vez maiores colhendo subornos de lobistas?
 
 <p align="center">~</p>
 
