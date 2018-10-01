@@ -35,7 +35,7 @@ Da mesma forma, homens são necessários para fornecer um suporte tanto material
    
  ---
  
-**Argumento**: Antigamente, as mulheres tinham que trabalhar como escravas no lar pata os homens!
+**Argumento**: Antigamente, as mulheres tinham que trabalhar como escravas no lar para os homens!
  
 
 **Refutação**: Nas mentes delirantes das feministas, limpar o lar e tomar conta das crianças é trabalho escravo, enquanto cuidar de uma fazenda, mineração de carvão, ser lenhador ou pedreiro é apenas diversão e entretenimento… Refrescando sua memória, em tempos mais difíceis, **todos** tinham que trabalhar duro _apenas_ para sobreviver. Homens e mulheres cooperaram um com o outro e fizeram as coisas mais adequadas à sua natureza. Todos se beneficiaram disso.
