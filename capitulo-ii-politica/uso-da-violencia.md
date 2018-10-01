@@ -56,7 +56,7 @@ Pacifismo é uma tendência profundamente anti-espiritual. Aqueles que desejam e
 
 **Argumento**: Quando se usa violência, inicia-se um ciclo de reciprocidade. Apenas o perdão pode parar o ciclo de violência.
 
-**Refutação**: O perdão é necessário quando lutamos uns contra os outros, porque divisões desnecessárias nos enfraquecem. Mas se estamos em guerra com povos **estrangeiros** por recursos e poder, o perdão é irrelevante porque não há nada para perdoar. Então procurar conciliação é um grave erro e nos deixa vulnerável a uma mal terrível – porque o que precisamos não é de uma pausa à violência, mas da **vitória.**
+**Refutação**: O perdão é necessário quando lutamos uns contra os outros, porque divisões desnecessárias nos enfraquecem. Mas se estamos em guerra com povos **estrangeiros** por recursos e poder, o perdão é irrelevante porque não há nada para perdoar. Então procurar conciliação é um grave erro e nos deixa vulnerável a um mal terrível – porque o que precisamos não é de uma pausa à violência, mas da **vitória.**
 
 **Refutação: Toda vida** é um ciclo de violência. Não por causa de vingança, retaliação ou qualquer outra emoção superficial do tipo. É porque **toda** vida quer sobreviver e prosperar, competições violentas pelo domínio de recursos e territórios é algo com o que todas as formas de vida neste planeta estão familiarizadas – **fora** da cabeça de esquerdistas delirantes pelo menos. O dia que você para de lutar, é o dia que você perde o direito de existir.
 <p align="center">~</p>
