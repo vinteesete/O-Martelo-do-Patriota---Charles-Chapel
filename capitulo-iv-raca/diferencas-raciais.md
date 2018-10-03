@@ -1,7 +1,8 @@
 ## Diferenças raciais
 
-A humanidade é uma espécie com muitas raças distintas. Cada raça tem seus próprios atributos mentais e físicos, que foram adquiridos ao longo de seu longo desenvolvimento histórico. Assim, a raça e as diferenças raciais são uma realidade biológica e não uma construção social. Nenhum programa de valor governamental ou engenharia cultural pode mudar a natureza básica de um indivíduo que é amplamente determinada pela biologia.
-Assim, as falhas e os sucessos de qualquer grupo de pessoas estão relacionados principalmente com esses antecedentes biológicos e não por causa de acidentes históricos, opressões, recursos e assim por diante.
+A humanidade é uma espécie com muitas raças distintas. Cada raça tem seus próprios atributos mentais e físicos, que foram adquiridos ao longo de seu longo desenvolvimento histórico. Assim, a raça e as diferenças raciais são uma **realidade biológica** e não uma construção social. Nenhum programa de valor governamental ou engenharia cultural pode mudar a natureza básica de um indivíduo que é amplamente determinada pela biologia.
+
+Assim, as falhas e os sucessos de qualquer grupo de pessoas estão relacionados principalmente com esses antecedentes biológicos e não por acidentes históricos, opressões, recursos e assim por diante.
 
 ## Argumentos
 
@@ -12,12 +13,12 @@ Assim, as falhas e os sucessos de qualquer grupo de pessoas estão relacionados 
 
 **Argumento**: Conheço muitos (negros / árabes / judeus / etc.) que são (pessoas inteligentes / honestas / agradáveis / etc.), você não pode generalizar.
 
-**Refutação**: Você obtém melhores resultados tomando decisões com base na regra geral e não nas exceções. Se você construir uma casa em uma zona de inundação, isso não irá ajudá-lo a impedir que o local não fique, inevitavelmente, SEMPRE inundado. Estou preocupado com os resultados, não com os sentimentos das pessoas.
+**Refutação**: Você obtém melhores resultados tomando decisões com base na **regra geral** e não nas exceções. Se você construir uma casa em uma zona de inundação, isso não irá ajudá-lo a impedir que o local não fique, inevitavelmente, SEMPRE inundado. Estou preocupado com os resultados, não com os sentimentos das pessoas.
 <p align="center">~</p>
 
 **Argumento**: Por que não podemos simplesmente nos dar bem?
 
-**Refutação**: Sim, por que o leão não pode se dar bem com a gazela? Por que os touros não podem ser amigos, em vez de competir por companheiras? Por que as formigas não podem simplesmente compartilhar seu território com os outros insetos? Eu acho que o mundo é um lugar difícil para os sonhadores, hein? Quando você tirar a cabeça das nuvens e descer para a Terra, poderemos discutir a realidade ao invés de doces fantasias.
+**Refutação**: Sim, por que o leão não pode se dar bem com a gazela? Por que os touros não podem ser amigos, em vez de competir por companheiras? Por que as formigas não podem simplesmente **compartilhar** seu território com os outros insetos? Eu acho que o mundo é um lugar difícil para os sonhadores, hein? Quando você tirar a cabeça das nuvens e descer para a Terra, poderemos discutir a **realidade** ao invés de doces fantasias.
 <p align="center">~</p>
 
 **Argumento**: Os não-brancos apresentam um desempenho fraco por causa do racismo em nossas instituições.
