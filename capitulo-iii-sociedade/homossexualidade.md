@@ -13,14 +13,12 @@ Portanto, toda a propagação da homossexualidade deve ser banida da esfera púb
 **Argumento**: Homossexuais não escolhem o que são – nós deveríamos deixá-los ser eles mesmos.
 
 **Refutação**: Homossexuais “não escolhem” fazer paradas gays degeneradas? Homossexuais “não escolhem” fazer sexo anal sem proteção com centenas de homens? Todos nós podemos controlar nosso comportamento com força de vontade, especialmente comportamento tão extremo quanto esse. Você acha que criminosos deveriam ser soltos se nós pensássemos que eles matam “por causa dos hormônios”?
-
----
+<p align="center">~</p> 
 
 **Argumento**: Alguns animais também mostram comportamento homossexual, então é natural.
 
 **Refutação**: Quem se importa se os animais fazem isso? Cachorros lambem o saco em público, agora isso é comportamento humano civilizado? Eu não ligo para o que os macacos fazem na floresta, eu ligo para o que é melhor para o meu povo.
-
----
+<p align="center">~</p> 
 
 **Argumento**: Você é homofóbico e provavelmente um gay enrustido!
 
@@ -29,8 +27,7 @@ Portanto, toda a propagação da homossexualidade deve ser banida da esfera púb
 **Refutação**: Você deve ser um fascista enrustido então, já que você fica tão bravo e sentimental com o que eu falo. É hora de sair do armário, amigo, nós te aceitaremos pelo que você é, relaxa.
 
 **Observação**: Você pode usar pedófilo ou alguma outra coisa ao invés de comedor de merda se não quiser ser vulgar \(ou se estiverem comendo!\), mas mesmo assim, faça uma refutação ofensiva. Você foi insultado, não deixe passar batido, castigue-os pela impertinência.
-
----
+<p align="center">~</p> 
 
 **Argumento**: Você é tão inseguro / você deve estar desconfortável com sua sexualidade.
 
@@ -39,26 +36,21 @@ Portanto, toda a propagação da homossexualidade deve ser banida da esfera púb
 **Refutação**: Um homem confiante e seguro não tem problema algum em dizer para as pessoas o que ele aprova ou desaprova. Somente bananas/maricas têm medo de magoar o sentimento das pessoas compartilhando sua opinião.
 
 **Refutação**: Todos os homens bem ajustados \(com a cabeça no lugar\) sentem repulsa e desconforto ao pensar sobre a homossexualidade. Aqueles que aceitam e apoiam isso possuem problemas mentais/possuem uma moral defeituosa.
-
----
+<p align="center">~</p> 
 
 **Argumento**: Homossexuais são como héteros, apesar de suas escolhas referentes ao parceiro sexual.
 
 **Refutação**: Não, você está errado. Homossexuais vivem uma vida de hedonismo, totalmente diferente das pessoas normais. Você pode procurar durante sua vida inteira e mesmo assim nunca encontrará um homossexual que não tem qualquer doença venérea ou que teve somente um parceiro em toda sua vida. Parece que o seu único contato com homossexuais foi através das novelas.
-
----
-
+<p align="center">~</p> 
 **Argumento**: Isso é genético.
 
 **Refutação**: Algumas pessoas são geneticamente cegas. Entretanto, isso não faz com que ser cego seja algo bom e natural. Isso não significa que seria completamente positivo caso um casal de cegos adotasse uma criança pequena.
-
----
+<p align="center">~</p> 
 
 **Argumento**: Gays só querem ser felizes “no seu canto”. Por quê você está tentando oprimi-los?
 
 **Refutação**: Se gays só quisessem ficar no seu canto nós não estaríamos tendo essa conversa. Nós nem mesmo estaríamos cientes da existência deles. Nós estamos falando sobre isso porque os homossexuais estão empurrando seu estilo de vida em nossa garganta sempre que podem. Eles estão tentando fazer as escolas promoverem seu estilo de vida, também fazem demonstrações públicas, propagando suas ideias na televisão. Você acha que isso é algo bom e louvável, eu acredito que isso precisa parar. Nosso povo possuí o direito de viver sua vida livre desta degeneração.
-
----
+<p align="center">~</p> 
 
 **Argumento**: Grandes artistas/cientistas são ou foram gays.
 
@@ -67,8 +59,7 @@ Portanto, toda a propagação da homossexualidade deve ser banida da esfera púb
 **Refutação**: Não é porque alguém fez uma coisa boa que todos serão santos em quaisquer aspectos.
 
 **Refutação**: O fato de existir alguns artistas gays não faz com que a arte seja um produto da homossexualidade. A sociedade não seria menos artística se gays permanecessem no armário, ou se não existissem.
-
----
+<p align="center">~</p> 
 
 **Argumento**: Muitos gays possuem relacionamentos monogâmicos estáveis.
 
@@ -77,24 +68,21 @@ Portanto, toda a propagação da homossexualidade deve ser banida da esfera púb
 **Réplica**: Eu conheço muitos casais gays que estiveram juntos por um longo tempo.
 
 **Refutação**: Sim, eles parecem ser estáveis. No entanto, eles não te contam nada sobre as visitinhas semanais na sauna coletiva, sobre o turismo sexual na Tailândia e sobre a orgia que o amigo deles organizou no mês passado. Um “casal gay estável” não tem nada a ver com um casal normal estável.
-
----
+<p align="center">~</p> 
 
 **Argumento**: Talvez os homens homossexuais sejam assim, mas lésbicas não levam esse tipo de vida depravada.
 
 **Refutação**: Se as mulheres querem acabar sozinhas, amargas e sem filhos quando possuírem 60 anos de idade, isso me deixa triste, mas isto é escolha delas. Enquanto não possuírem permissão para promover suas bobagens feministas insanas e sem sentido, ninguém pode forçá-las a fazer o que é melhor para si mesmos.
-
----
+<p align="center">~</p> 
 
 **Argumento**: É melhor, para uma criança, ter pais gays ao invés de não ter pais ou viver na pobreza. Ao menos eles possuem uma casa.
 
 **Refutação**: Olha, eu realmente não me importo com compromissos e \*casos marginais\* - O que me interessa é o melhor, o caminho ideal para vivermos nossas vidas. O melhor, o caminho ideal para a criança é ser criada por um pai e uma mãe que os amam, idealmente com diversos irmãos. Nós, como uma sociedade, precisamos fazer tudo que podemos para promover esta ideia e eliminar as situações prejudiciais que surgem quando desviamos desse ideal. Eu não vou dar minha bênção para algo prejudicial e perigoso somente porque “poderia ser pior”.
-
----
+<p align="center">~</p> 
 
 **Argumento**: Os antigo gregos \(ou outros\) eram tolerantes com gays, e isso funcionou.
 
 **Refutação**: Teria “funcionado” ainda melhor se eles tivessem uma política sensata ao invés de manter esta anomalia social bizarra.
 
-**Nota do tradutor**: Não se preocupe em discutir o porquê este equívoco comum é incorreto, debates históricos obscuros como este passam voando sobre a cabeça das pessoas normais.
+**Nota do tradutor**: Não se preocupe em discutir o porquê deste equívoco comum ser incorreto, debates históricos obscuros como este passam voando sobre a cabeça das pessoas normais.
 
