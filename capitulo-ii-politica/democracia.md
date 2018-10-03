@@ -26,7 +26,7 @@ Além disso, em qualquer eleição com mais de alguns milhares de eleitores, as 
 
 **Argumento**: A democracia é importante porque nela, somos todos iguais, nossas opiniões tem todas o mesmo valor.
 
-**Refutação**: As pessoas são iguais? Como assim? Algumas pessoas são fortes, algumas são fracas, algumas correm rápido, algumas nem sequer têm pernas, algumas são saudáveis, algumas estão em um coma vegetativo, algumas têm doutorado em engenharia elétrica e centrais elétricas, enquanto algumas são muito estúpidas para aprender a ler e escrever, algumas pessoas são generosas e gentis, enquanto outras são assassinas em série e executivos financeiros corruptos. As pessoas são iguais apenas nas fantasias de um liberal.
+**Refutação**: As pessoas são iguais? Como assim? Algumas pessoas são fortes, algumas são fracas, algumas correm rápido, algumas nem sequer têm pernas, algumas são saudáveis, algumas estão em um coma vegetativo, algumas têm doutorado em engenharia elétrica e centrais elétricas, enquanto algumas são muito estúpidas para aprender a ler e escrever, algumas pessoas são generosas e gentis, enquanto outras são assassinas em série e executivos financeiros corruptos. As pessoas são iguais apenas nas fantasias de um esquerdista.
 
 <p align="center">~</p>
 
@@ -42,7 +42,7 @@ Além disso, em qualquer eleição com mais de alguns milhares de eleitores, as 
 
 **Refutação**: Oh, pelo contrário, megalomaníacos são como peixe na água em uma democracia. A democracia dá um microfone a todos os messias delirantes que desejam reformar a humanidade e lhe dão uma chance de concorrer ao cargo público!
 
-**Refutação**: É engraçado como liberais insistem em que qualquer nação que não seja "democrática" precisa ser bombardeada e devidamente "reformada". É engraçado como todos os que não concordam com suas opiniões radicais são "atrasados" e "ignorantes". E, no entanto, é o resto de nós que está tentando "impor nossas opiniões" sobre eles.
+**Refutação**: É engraçado como esquerdistas insistem em que qualquer nação que não seja "democrática" precisa ser bombardeada e devidamente "reformada". É engraçado como todos os que não concordam com suas opiniões radicais são "atrasados" e "ignorantes". E, no entanto, é o resto de nós que está tentando "impor nossas opiniões" sobre eles.
 
 <p align="center">~</p>
 
