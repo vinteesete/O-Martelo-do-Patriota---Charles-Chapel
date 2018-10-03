@@ -64,9 +64,9 @@ Nós queremos união e força, que só podem ser obtidos quando o homem tiver o 
 
 **Argumento**: Somente pessoas ignorantes precisam acreditar em um poder maior ou na vida após a morte.
 
-**Refutação**: Você está dizendo que é uma pessoa de mente forte enquanto homens como (Platão, Aristóteles, George Washington, “insira qualquer grande homem religioso aqui”) são ignorantes? Eu nunca ouvi nada tão delirante e egocêntrico.
+**Refutação**: Você está dizendo que é uma pessoa de mente forte enquanto homens como (Platão, Aristóteles, George Washington, “insira qualquer grande homem religioso aqui”) são **ignorantes?** Eu nunca ouvi nada tão delirante e egocêntrico.
 
-**Refutação**: \(Sarcasticamente\) Ah sim. Afinal, rejeitar todas as responsabilidades das suas próprias ações e viver uma vida de hedonismo requer um caráter “muito forte”, certo? Diferente daqueles cristãos que trabalharam duro para construir este país com o suor do próprio corpo. Se toque.
+**Refutação**: (_Sarcasticamente_) Ah sim. Afinal, rejeitar todas as responsabilidades das suas próprias ações e viver uma vida de hedonismo requer um caráter “muito forte”, certo? Diferente daqueles cristãos que trabalharam duro para **construir** este país com o suor do próprio corpo. Se toque.
 <p align="center">~</p> 
 
 **Argumento**: A religião faz as pessoas tomarem decisões importantes baseando-se em fantasias e ideias relacionadas a espíritos no céu.
@@ -76,15 +76,15 @@ Nós queremos união e força, que só podem ser obtidos quando o homem tiver o 
 
 **Argumento**: Veja quanto progresso fizemos desde que abandonamos a religião e promovemos a ciência!
 
-**Refutação**: Que progresso? Você quer dizer iPhones e máquinas de lavar? Claro, essas coisas são agradáveis. Mas os gadgets não deixam os homens felizes. O progresso deveria ser mensurado pelo estado do nosso povo, não por "bugigangas".
+**Refutação**: Que progresso? Você quer dizer iPhones e máquinas de lavar? Claro, essas coisas são agradáveis. Mas os _gadgets_ não deixam os homens felizes. O progresso deveria ser mensurado pelo estado do nosso povo, não por **bugigangas.**
 <p align="center">~</p> 
 
 **Argumento**: A religião interrompe o progresso científico e persegue pensadores independentes.
 
-**Refutação**: Eu me sentiria muito mais seguro se pessoas religiosas com moralidade estivessem supervisionando as pesquisas científicas. Talvez nós não teríamos visto abominações como a bomba nuclear, armas químicas, napalm ou plantas e animais geneticamente modificados. A religião coloca um freio nas pesquisas e ideias perigosas e indecentes. Talvez isso tenha sido muito restritivo no passado… Entretanto, é melhor ter um controle restritivo do que manter aberta uma caixa de pandora desencadeando atrocidades no mundo. Precisamos de limites razoáveis na ciência e não temos nenhum agora.
+**Refutação**: Eu me sentiria muito **mais seguro** se pessoas religiosas com moral estivessem supervisionando pesquisas científicas. Talvez nós não teríamos visto**abominações** como a bomba nuclear, armas químicas, Napalm ou plantas e animais geneticamente modificados. A religião coloca um freio nas pesquisas e ideias perigosas e indecentes. Talvez isso tenha sido muito restritivo no passado… Entretanto, é melhor ter um controle restritivo do que manter aberta uma “caixa de Pandora” desencadeando **atrocidades** no mundo. Precisamos de **limites razoáveis** na ciência e não temos **nenhum** agora.
 <p align="center">~</p> 
 
 **Argumento**: As cruzadas mostram a intolerância cristã!
 
-**Refutação**: Os muçulmanos invadiram nossas terras, massacraram nosso povo e queimaram nossas igrejas. Os europeus simplesmente fizeram o seu dever e lutaram para proteger seus irmãos cristãos lutando contra os invasores. No entanto, pessoas como você tentam nos fazer sentir culpados pelos atos heroicos dos nossos antepassados? Pense na coragem que se exige para deixar sua casa, marchar por meses em direção à uma terra estranha e lutar batalhas brutais para ajudar as pessoas que você nem conhece. Pensar que meus antepassados tinham esse tipo de coragem não me dá nada senão orgulho. O intolerante aqui é você.
+**Refutação**: Os muçulmanos invadiram nossas terras, massacraram nosso povo e queimaram nossas igrejas. Os europeus simplesmente fizeram o seu dever e lutaram para proteger seus irmãos cristãos dos invasores. No entanto, pessoas como **você** tentam nos fazer sentir culpados pelos atos heroicos dos nossos antepassados? Pense na **coragem** que se exige para deixar sua casa, marchar por meses em direção à uma terra estranha e lutar batalhas brutais para ajudar as pessoas que você nem conhece. Pensar que meus antepassados tinham esse tipo de coragem não me dá nada senão **orgulho.** O intolerante aqui é você.
 
