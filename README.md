@@ -33,7 +33,7 @@
 
 ---------------------------------------------------
 
-- [ ] (Capítulo V - Ataques gerais)
+- [x] (Capítulo V - Ataques gerais)
 - [ ] (Capítulo V - Questões históricas)
 - [ ] (Capítulo V – Cristianismo versus Paganismo)
 - [ ] (Capítulo V - Teorias da conspiração
