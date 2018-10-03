@@ -44,14 +44,14 @@ E é por isso que o único sistema político viável é o nacionalismo étnico. 
 
 **Argumento**: Não existe mais isso de raça pura, somos todos miscigenados, então é impossível existir uma nação homogênea.
 
-**Refutação**: Pessoas normais e bem ajustadas podem facilmente reconhecer outros da mesma raça, e eles irão naturalmente se reunir. Como óleo e água que naturalmente se separam quando deixados sozinhos, nós iremos naturalmente nos separar em grupos homogêneos sem nenhum tipo de classificação. A única coisa impedindo este comum e natural processo é a política de forçar a integração, imposta pelas reformas sociais liberais – com efeitos desastrosos.
+**Refutação**: Pessoas normais e bem ajustadas podem facilmente reconhecer outros da mesma raça, e eles irão naturalmente se reunir. Como óleo e água que naturalmente se separam quando deixados sozinhos, nós iremos naturalmente nos separar em grupos homogêneos sem nenhum tipo de classificação. A única coisa impedindo este comum e natural processo é a política de forçar a integração, imposta pelas reformas sociais esquerdistas – com efeitos desastrosos.
 <p align="center">~</p>
 
 **Argumento**: Basear o estado em etnia é tão primitivo e tribal.
 
 **Refutação**: Há uma rebelião acontecendo agora. Uma rebelião de alguns esquerdistas radicais contra a própria natureza; eles rejeitam seus genes, eles rejeitam sua natureza animal e eles rejeitam até mesmo sua unidade biológica, necessária para sobreviver e reproduzir. Eles **odeiam** o natural, e prefeririam viver em um mundo de ideais abstratos onde uma coisa tão opressora quanto o sexo dos corpos não interfere em sua elevada filosofia. Mas aqui no mundo real, nossa natureza biológica está no cerne de quem nós somos como indivíduos e como pessoas. Este é o mais poderoso e estável alicerce para qualquer associação de pessoas.
 
-**Nota**: Essa é uma resposta agressiva, feita menos violenta pelo uso da terceira pessoa, em resposta a um insulto direto à ideia do nacionalismo étnico. Não ataque o liberal diretamente (“você está se rebelando contra a natureza”) porque isso não cairia tão bem.
+**Nota**: Essa é uma resposta agressiva, feita menos violenta pelo uso da terceira pessoa, em resposta a um insulto direto à ideia do nacionalismo étnico. Não ataque o esquerdista diretamente (“Você está se rebelando contra a natureza”) porque isso não cairia tão bem.
 <p align="center">~</p>
 
 **Argumento**: Nacionalismo é apenas uma ferramenta para controlar as pessoas.
